@@ -61,6 +61,6 @@
 
 ### **Gmail: tuanddt.ai.work@gmail.com**
 
-### **Kaggle: [tuanddt.ai.work@gmail.com](https://www.kaggle.com/tuanai)**
+### **Kaggle: [Tuan_AI](https://www.kaggle.com/tuanai)**
 
 ### ***Thanks everyone!***
